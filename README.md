@@ -1,1 +1,1 @@
-# Kondratenko Daniil, ITS-b-o-22-1, Iskysstvenniy Intellekt v professional�noiy sfere.
+Волошин Алексей Вадимович ИТС-б-о-22-1 
